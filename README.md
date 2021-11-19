@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AlexanderVDF
+- 👀 I’m interested in SF, science, music and a lot of other things.
+- 🌱 I’m currently studing at the computing department of the IUT of Dijon-Auxerre in france.
+- 📫 How to reach me: aalouex@gmail.com
